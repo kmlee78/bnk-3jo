@@ -1,1 +1,1 @@
-![image](https://github.com/kmlee78/bnk-3jo/assets/72758925/295127db-0268-4f06-b0ae-01e101751f93)
+![image](https://github.com/kmlee78/bnk-3jo/assets/72758925/5e8c238e-3e10-4b12-b6f7-440268237528)
